@@ -1,1 +1,1 @@
-Gio la lampara
+El de la izquierda la loca
